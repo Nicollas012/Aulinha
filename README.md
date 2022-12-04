@@ -1,2 +1,0 @@
-# Aulinha
-Tarefinhas
